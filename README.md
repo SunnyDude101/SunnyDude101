@@ -1,5 +1,5 @@
 
-![octocat-1704394069051](https://github.com/SunnyDude101/SunnyDude101/assets/100776059/4b6d3647-777e-419e-82f5-f7dc339793fa)
+![octocate2](https://github.com/SunnyDude101/SunnyDude101/assets/100776059/58ce6334-fc93-4875-bd64-7f961f2f85b6)
 ### Hi There! 👋 
 - 😄I'm @SunnyDude101
 - 🔭 I’m currently a high school student, going to Walpole High School.
